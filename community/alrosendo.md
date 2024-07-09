@@ -1,4 +1,4 @@
-# **Olá, meu nome é Aloisio Rosendo** 
+# **Olá, meu nome é Aloisio Rosendo** &#128512; &#128516; &#128525; &#128151;
 
 Sou estudante de Analises de Sistemas  (Tecnólogo) - Gran Faculdade e ingressei em 2023.\
 Atualmente trabalho na área da sanidade e inspeção de produtos de origem animal, sou Medico veterinário e meu intuito é migrar para área de Tecnologia, Em busca de oportunidades melhores e de crescimento profissional.  
